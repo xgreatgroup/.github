@@ -23,4 +23,4 @@ Vertical especializada do XGreat OS para a operação digital de negócios de al
 
 ## Conheça a XGreat
 
-[Site institucional](https://xgreat.com.br/) · [Instagram oficial](https://www.instagram.com/xgreat.os/)
+[Site institucional](https://xgreat.com.br/) · [Instagram oficial](https://www.instagram.com/xgreat.os/) · [LinkedIn empresarial](https://www.linkedin.com/company/xgreat/)
